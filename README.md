@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yusufk123
+- 👋 Hi, I’m Yusuf Kounnichi
 - 👀 I’m interested in Games and Music
 - 🌱 I’m currently learning Programming
 - 💞️ I’m looking to collaborate on ?
